@@ -83,19 +83,5 @@ Uses a lot of storage: This Android application can use a lot of the device’s 
 
 Unstable: According to some users, the program can occasionally crash and is unstable.
 
-Please follow and like us:
-error
 
-fb-share-icon
-Tweet
-fb-share-icon
-Related
-Oldroll Mod Apk V 4.4.8(Premium Unlocked)Download Free
-June 8, 2024
-In "Blog"
-How to Download Oldroll Mod Apk For IOS(Premium Unlocked):
-April 29, 2024
-In "Blog"
-Download Old roll Mod Apk(Premium Unlocked) For Android:
-May 31, 2024
-In "Blog"
+
